@@ -1,3 +1,5 @@
+СТАТУС: НЕ РАБОТАЕТ
+
 Path of exile 1 интернал: видеть карту, зум, авто мана и лечение
 
 скачать (если не качает, тогда включи ВПН): https://mega.nz/file/hG1Vla7Y#WlQf4xGrYs2fVc-9WFUXQZAZOlnVVJGHc3-I_KNViPo
